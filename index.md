@@ -61,16 +61,17 @@ Private Client — *Etobicoke, ON | Nov 2021 – Dec 2021*
 
 ## 🎓 Education and Certifications
 
+**Standard First Aid & CPR Level C with BLS**  
+Toronto CPR — *2022 (valid through 2025)*
+
 **Palliative Care Multidiscipline Program**  
 Niagara College — *Ontario | Sept 2021 – Jun 2022*
 
+**Infection Control Training**  
+King Saud Medical City — *Saudi Arabia | 2016*
+
 **Bachelor of Science in Nursing**  
 University of Northern Philippines — *Philippines | 2010*
-
-**Certifications**
-
-- Standard First Aid & CPR Level C with BLS — *Toronto CPR (2022, valid through 2025)*  
-- Infection Control Training — *King Saud Medical City (2016)*
 
 ---
 
