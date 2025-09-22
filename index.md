@@ -76,7 +76,7 @@ King Saud Medical City - *Riyadh, Saudi Arabia |August 2016 - July 2018*
 - Provide health teaching to parents and caregivers on medication adherence, nutrition, infection prevention, and home care.
 - Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children.
 
-**Staff Nurse- Government Hospital, Philippines**
+**Staff Nurse- Government Hospitals, Philippines**
 Nov 2010 - August 2016
 - Delivered nursing care in medical-surgical and pediatric units, including patient monitoring, medication administration, and emergency response.
 - Assisted physicians with procedures and implemented treatment plans for diverse patient populations.
