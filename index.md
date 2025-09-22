@@ -1,7 +1,21 @@
+---
+layout: default
+title: "Joanna Levi Calupig - Resume
+---
+
 # JOANNA LEVI CALUPIG
 
-📍 Markham, Ontario &nbsp;&#124;&nbsp; 📞 [(647) 864‑3970](tel:+16478643970) &nbsp;&#124;&nbsp; 📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/) &nbsp;&#124;&nbsp; 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/) &nbsp;&#124;&nbsp; 📄 [Download Resume (PDF)](resume.pdf)
+📍 Markham, Ontario
+
+📞 [(647) 864‑3970](tel:+16478643970)
+
+📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)
+
+🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/)
+
+🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)
+
+📄 [Download Resume (PDF)](resume.pdf)
 
 ## 👩‍⚕️ Professional Summary
 
@@ -11,7 +25,8 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 - **8+ years** of combined nursing and personal support experience (Philippines, Saudi Arabia, Canada)  
 - **Certified in Standard First Aid, CPR Level C with BLS** *(2025)*  
-- Registered Nurse (Philippines & Saudi Arabia) — *Now a Permanent Resident of Canada*  
+- Registered Nurse (Philippines & Saudi Arabia)
+- Now a Permanent Resident of Canada
 - Multilingual: **English**, **Filipino**, **Ilocano**  
 
 ## 🧰 Key Skills
@@ -27,43 +42,39 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 ## 💼 Work Experience
 
 **Home Support Worker**  
-*Private Residence — Markham, ON*  
-**Feb 2023 – Apr 2025**  
+Private Residence — *Markham, ON  |  Feb 2023 – Apr 2025*
 - Assisted with bathing, dressing, ambulation, and hygiene 
 - Provided companionship and emotional support  
 - Prepared nutritious meals and assisted with feeding  
 - Encouraged mobility through routine exercise  
 
 **Personal Support Worker (Part-time)**  
-*Right at Home — Burlington, ON*  
-**Jan 2022 – May 2022**  
+Right at Home — *Burlington, ON  |  Jan 2022 – May 2022*
 - Supported clients with daily living activities and hygiene  
 - Performed safe transfers using Hoyer lift  
 - Assisted with meal preparation and pericare  
 
 **Personal Support Worker (Part-time)**  
-*Private Client — Etobicoke, ON*  
-**Nov 2021 – Dec 2021**  
+Private Client — *Etobicoke, ON  |  Nov 2021 – Dec 2021*
 - Ensured client safety while assisting with ADLs  
 - Provided companionship, meal support, and pericare  
 
 ## 🎓 Education & Certifications
 
 **Palliative Care Multidiscipline Program**  
-*Niagara College — Ontario*  
-**Sept 2021 – Jun 2022**
+Niagara College — *Ontario  |  Sept 2021 – Jun 2022*
 
 **Bachelor of Science in Nursing**  
-*University of Northern Philippines*  
-**2010**
+*University of Northern Philippines — *Philippines  |  2010*
 
 ### Certifications
 
-- Standard First Aid & CPR Level C with BLS — *Toronto CPR (2025)*  
-- Infection Control Training — *King Saud Medical City (2016)*  
+- **Standard First Aid & CPR Level C with BLS** — *Toronto CPR (2025)*  
+- **Infection Control Training** — *King Saudi Medical City (2016)*  
 
 ## 📌 Additional Information
 
-- Registered Nurse (Philippines & Saudi Arabia) — *Not licensed in Canada*  
-- Languages: English, Filipino, Ilocano  
-- Status: Permanent Resident of Canada  
+- **Registered Nurse:** Philippines & Saudi Arabia (*Not licensed in Canada*)
+- **PSW/HSW:** 2 Years experience in Canada
+- **Status:** Permanent Resident of Canada  
+- **Languages**: English, Filipino, Ilocano
