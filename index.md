@@ -47,4 +47,37 @@ Private Residence – *Markham, ON* &nbsp; | &nbsp; **Feb 2023 – Apr 2025**
 - Encouraged mobility through routine exercise  
 
 **Personal Support Worker (Part-time)**  
-Right at Home – *Burlington, ON* &nbsp; | &nbsp; **Jan 2022**
+Right at Home – *Burlington, ON* &nbsp; | &nbsp; **Jan 2022 – May 2022**  
+- Supported clients with daily living activities and hygiene  
+- Performed safe transfers using Hoyer lift  
+- Assisted with meal preparation and pericare  
+
+**Personal Support Worker (Part-time)**  
+Private Client – *Etobicoke, ON* &nbsp; | &nbsp; **Nov 2021 – Dec 2021**  
+- Ensured client safety while assisting with ADLs  
+- Provided companionship, meal support, and pericare  
+
+---
+
+## 🎓 Education & Certifications
+
+**Palliative Care Multidiscipline Program**  
+Niagara College – *Ontario* &nbsp; | &nbsp; **Sept 2021 – Jun 2022**
+
+**Standard First Aid & CPR Level C with BLS**  
+Toronto CPR – *Ontario* &nbsp; | &nbsp; **2025**
+
+**Infection Control Training**  
+King Saud Medical City – *Saudi Arabia* &nbsp; | &nbsp; **2016**
+
+**Bachelor of Science in Nursing**  
+University of Northern Philippines – *Philippines* &nbsp; | &nbsp; **2010**
+
+---
+
+## 📌 Additional Information
+
+- **Registered Nurse:** Philippines & Saudi Arabia (*Not licensed in Canada*)  
+- **PSW/HSW:** 2 years of hands-on experience in Ontario  
+- **Status:** Permanent Resident of Canada  
+- **Languages:** English, Filipino, Ilocano
