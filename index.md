@@ -90,6 +90,12 @@ Nov 2010 - August 2016
 **Standard First Aid & CPR Level C with BLS**  
 Toronto CPR — *Ontario | Sept 2025*
 
+**Coursework/Training in Identification and Reporting of Child Abuse and Maltreatment**
+#1 Accelerated CE- NYS Education Department - *New York |August 2023
+
+**Infection Control and Barrier Precautions**
+#1 Accelerated CE - NYS Education Department- *New York |August 2023
+
 **Palliative Care Multidiscipline Program**  
 Niagara College — *Ontario | Sept 2021 – Jun 2022*
 
