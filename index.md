@@ -66,6 +66,15 @@ St. Theresa Dialysis Center, Inc.- *Pampanga, Philippines |May 2020 - July 2021*
 - Educated patients and families about diet, fluid management, and long-term kidney health.
 - Maintained infection control standards and ensured proper sterilization of equipment.
 
+**Pediatric Nurse - Pediatric Medical Unit**
+King Saud Medical City - *Riyadh, Saudi Arabia |August 2016 - July 2018*
+- Delivered direct nursing care to pediatric patients and acute and chronic medical conditions.
+- Monitored vital signs, growth, and response to treatments; promptly reported changes to physicians.
+- Administered oral, intramascular, and intravenous medications, fluids, and vaccinations in accordance with pediatric protocols.
+- Assisted with diagnostic and therapeutic procedures such as IV insertion, oxygen therapy, and wound care.
+- Collaborated with pediatricians and interdisciplinary teams in developing andimplementing care plans.
+- Provide health teaching to parents and caregivers on medication adherence, nutrition, infection prevention, and home care.
+- Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children.
 
 **Staff Nurse- Government Hospital, Philippines**
 Nov 2010 - August 2016
