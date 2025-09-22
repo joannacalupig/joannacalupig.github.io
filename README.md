@@ -1,7 +1,7 @@
 # JOANNA LEVI CALUPIG
 
-📍 Markham, Ontario &nbsp;|&nbsp; 📞 [(647) 864‑3970](tel:+16478643970) &nbsp;|&nbsp; 📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/) &nbsp;|&nbsp; 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/) &nbsp;|&nbsp; 📄 [Download Resume (PDF)](resume.pdf)
+📍 Markham, Ontario &nbsp;&#124;&nbsp; 📞 [(647) 864‑3970](tel:+16478643970) &nbsp;&#124;&nbsp; 📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)  
+🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/) &nbsp;&#124;&nbsp; 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/) &nbsp;&#124;&nbsp; 📄 [Download Resume (PDF)](resume.pdf)
 
 ## 👩‍⚕️ Professional Summary
 
