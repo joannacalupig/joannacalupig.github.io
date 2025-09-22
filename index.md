@@ -2,7 +2,7 @@
 
 📍 Markham, Ontario  
 📞 [(647) 864‑3970](tel:+16478643970)  
-📧 [joanna.levi.o.calupig@gmail.com](mailto:joanlevs@yahoo.com)  
+📧 [joanlevs@yahoo.com](mailto:joanlevs@yahoo.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/)  
 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)  
 📄 [Download Resume (PDF)](JoannaLeviCalupig-Resume.pdf)
