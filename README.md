@@ -1,11 +1,18 @@
-# Joanna Levi Calupig
+# JOANNA LEVI CALUPIG
 
-📍 Markham, Ontario &nbsp;&nbsp;|&nbsp;&nbsp; 📞 (647) 864-3970 &nbsp;&nbsp;|&nbsp;&nbsp; 📧 joanna.levi.o.calupig@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/) | [joannacalupig.com](https://joannacalupig.github.io/)   
+📍 Markham, Ontario &nbsp;|&nbsp; 📞 [(647) 864‑3970](tel:+16478643970) &nbsp;|&nbsp; 📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)  
+🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/) &nbsp;|&nbsp; 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/) &nbsp;|&nbsp; 📄 [Download Resume (PDF)](resume.pdf)
 
 ## 👩‍⚕️ Professional Summary
 
 Compassionate healthcare professional and Registered Nurse (Philippines & Saudi Arabia) with hands-on PSW experience in Ontario. Skilled in personal care, safe client handling, companionship, and palliative support. Certified in First Aid & CPR with a strong foundation in infection control and patient safety. Dedicated to enhancing quality of life and dignity for clients.
+
+## 🌟 Highlights
+
+- **8+ years** of combined nursing and personal support experience (Philippines, Saudi Arabia, Canada)  
+- **Certified in Standard First Aid, CPR Level C with BLS** *(2025)*  
+- Registered Nurse (Philippines & Saudi Arabia) — *Now a Permanent Resident of Canada*  
+- Multilingual: **English**, **Filipino**, **Ilocano**  
 
 ## 🧰 Key Skills
 
