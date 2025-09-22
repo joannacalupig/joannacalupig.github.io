@@ -1,21 +1,11 @@
----
-layout: default
-title: "Joanna Levi Calupig - Resume
----
-
 # JOANNA LEVI CALUPIG
 
-📍 Markham, Ontario
-
-📞 [(647) 864‑3970](tel:+16478643970)
-
-📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)
-
-🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/)
-
-🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)
-
-📄 [Download Resume (PDF)](resume.pdf)
+📍 Markham, Ontario  
+📞 [(647) 864‑3970](tel:+16478643970)  
+📧 [joanna.levi.o.calupig@gmail.com](mailto:joanna.levi.o.calupig@gmail.com)  
+🔗 [LinkedIn](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/)  
+🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)  
+📄 [Download Resume (PDF)](resume.pdf)  
 
 ## 👩‍⚕️ Professional Summary
 
