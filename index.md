@@ -53,7 +53,7 @@ Right at Home — *Burlington, ON | Jan 2022 – May 2022*
 - Assisted with meal preparation and pericare
 
 **Personal Support Worker (Part-time)**  
-Private Client — *Etobicoke, ON | Nov 2021 – Dec 2021*  
+Eldercare Home Health— *Toronto, ON | Nov 2021 – Dec 2021*  
 - Ensured client safety while assisting with ADLs  
 - Provided companionship, meal support, and pericare
 
