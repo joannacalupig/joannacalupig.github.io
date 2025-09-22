@@ -57,6 +57,23 @@ Eldercare Home Health— *Toronto, ON | Nov 2021 – Dec 2021*
 - Ensured client safety while assisting with ADLs  
 - Provided companionship, meal support, and pericare
 
+**Dialysis Nurse**
+St. Theresa Dialysis Center, Inc.- *Pampanga, Philippines |May 2020 - July 2021*
+- Provided specialized care to patients with chronic kdney disease undergoing hemodialysis.
+- Prepared, operated, and monitored dialysis machines to ensure accurate treatment delivery.
+- Assessed patients before, during, and after dialysis;responded promptly to complications.
+- Administered IV medications, blood transfusions, and anticoagulants as ordered.
+- Educated patients and families about diet, fluid management, and long-term kidney health.
+- Maintained infection control standards and ensured proper sterilization of equipment.
+
+
+**Staff Nurse- Government Hospital, Philippines**
+Nov 2010 - August 2016
+- Delivered nursing care in medical-surgical and pediatric units, including patient monitoring, medication administration, and emergency response.
+- Assisted physicians with procedures and implemented treatment plans for diverse patient populations.
+- Educated patients and families on disease management, post-hospital care, and health promotion.
+
+
 ---
 
 ## 🎓 Education and Certifications
