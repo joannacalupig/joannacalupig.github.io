@@ -79,7 +79,7 @@ King Saud Medical City – *Riyadh, Saudi Arabia | Aug 2016 – Jul 2018*
 - Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children
 
 **Staff Nurse – Government Hospitals**  
-Various Government Hospitals *Manila, Philippines | Nov 2010 – Aug 2016*  
+Various Government Hospitals – *Manila, Philippines | Nov 2010 – Aug 2016*  
 - Delivered nursing care in medical-surgical and pediatric units, including patient monitoring, medication administration, and emergency response
 - Assisted physicians with procedures and implemented treatment plans for diverse patient populations
 - Educated patients and families on disease management, post-hospital care, and health promotion
