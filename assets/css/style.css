@@ -19,3 +19,11 @@ url("https://pages-themes.github.io/cayman/assets/css/style.css");
   padding: 0.3rem 1rem !important;
   margin-top: 0.5rem !important;
 }
+@media print {
+  .page-header {
+    display: none !important;
+  }
+  .page-break {
+    page-break-before: always;
+  }
+}
