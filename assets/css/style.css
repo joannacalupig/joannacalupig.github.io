@@ -5,9 +5,17 @@ url("https://pages-themes.github.io/cayman/assets/css/style.css");
   top: 0;
   z-index: 1000;
   box-shadow: 0 2px 6px rgba(0, 0, 0, 0.2);
-  padding: 1.5rem 1rem;
+  padding: 0.8rem 1rem !important;
+}
+.page-header .project-name {
+  font-size: 1.8rem !important;
+  margin: 0 !important;
+}
+.page-header .project-tagline {
+  font-size: 1rem !important;
+  margin: 0 !important;
 }
 .site-footer {
-  padding: 0.5rem 1rem;
-  margin-top: 1rem;
+  padding: 0.3rem 1rem !important;
+  margin-top: 0.5rem !important;
 }
