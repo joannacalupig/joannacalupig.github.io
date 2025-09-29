@@ -79,7 +79,7 @@ King Saud Medical City – *Riyadh, Saudi Arabia | Aug 2016 – Jul 2018*
 - Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children
 
 **Staff Nurse – Government Hospitals**  
-Various Government Hospitals *Manila, Philippines | Nov 2010 – August 2016*  
+Various Government Hospitals *Manila, Philippines | Nov 2010 – Aug 2016*  
 - Delivered nursing care in medical-surgical and pediatric units, including patient monitoring, medication administration, and emergency response
 - Assisted physicians with procedures and implemented treatment plans for diverse patient populations
 - Educated patients and families on disease management, post-hospital care, and health promotion
@@ -96,13 +96,13 @@ Toronto CPR – *Ontario | Sep 2025*
 #1 Accelerated CE – NYS Education Department – *New York | Aug 2023*
 
 **Infection Control and Barrier Precautions**
-#1 Accelerated CE –- NYS Education Department —– *New York | Aug 2023*
+#1 Accelerated CE – NYS Education Department – *New York | Aug 2023*
 
 **Palliative Care Multidiscipline Program**  
-Niagara College – *Ontario | Sept 2021 – Jun 2022*
+Niagara College – *Ontario | Sep 2021 – Jun 2022*
 
 **Infection Control Training**  
-King Saud Medical City – *Saudi Arabia | 2016*
+King Saudi Medical City – *Saudi Arabia | 2016*
 
 **Bachelor of Science in Nursing**  
 University of Northern Philippines – *Philippines | 2010*
