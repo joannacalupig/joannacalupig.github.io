@@ -26,4 +26,13 @@ url("https://pages-themes.github.io/cayman/assets/css/style.css");
   .page-break {
     page-break-before: always;
   }
+  a,
+  a:visited {
+    color: inherit !important;
+    text-decoration: none !important;
+  }
+  ul,
+  ol {
+    margin-top: 0.2rem !important;
+  }
 }
