@@ -3,7 +3,7 @@
 📍 Markham, Ontario  
 📞 [(647) 864‑3970](tel:+16478643970)  
 📧 [joanlevs@yahoo.com](mailto:joanlevs@yahoo.com)  
-🔗 [linkedin.com/in/joanna-levi-calupig-237481a3](https://www.linkedin.com/in/joanna-levi-calupig-237481a3/)  
+🔗 [linkedin.com/in/JLC0804](https://www.linkedin.com/in/JLC0804/)  
 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)  
 📄 [Download Resume (PDF)](JoannaLeviCalupig-Resume.pdf)
 
@@ -17,8 +17,8 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ## 🌟 Highlights
 
-- **Nursing:** 10 Years experience (Philippines and Saudi Arabia)
-- **PWS/HSW:** 2+ Years experience (Canada)
+- **Nursing:** 9Years experience (Philippines and Saudi Arabia)
+- **PWS/HSW:** 2 Years & 8 months experience (Canada)
 - **First Aid:** Certified in Standard First Aid, CPR Level C with BLS
 - **Infection Control:** Trained and certified
 - **Palliative Care:** Certified in Canada
@@ -79,7 +79,7 @@ King Saud Medical City – *Riyadh, Saudi Arabia | Aug 2016 – Jul 2018*
 - Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children
 
 **Staff Nurse – Government Hospitals**  
-Various Government Hospitals – *Manila, Philippines | Nov 2010 – Aug 2016*  
+Various Government Hospitals – *La Union, Philippines | Nov 2010 – Aug 2016*  
 - Delivered nursing care in medical-surgical and pediatric units, including patient monitoring, medication administration, and emergency response
 - Assisted physicians with procedures and implemented treatment plans for diverse patient populations
 - Educated patients and families on disease management, post-hospital care, and health promotion
@@ -88,6 +88,12 @@ Various Government Hospitals – *Manila, Philippines | Nov 2010 – Aug 2016*
 ---
 
 ## 🎓 Education and Certifications
+
+**HACCP Food Safety System for Restaurants and other Catering Services**
+Alison (E Learning) / Sep 2025*
+
+**Caregiving Skills: Dementia Care**
+Alison ( E Learning) / Sep 2025
 
 **Standard First Aid & CPR Level C with BLS**  
 Toronto CPR – *Ontario | Sep 2025*
@@ -102,16 +108,16 @@ Toronto CPR – *Ontario | Sep 2025*
 Niagara College – *Ontario | Sep 2021 – Jun 2022*
 
 **Infection Control Training**  
-King Saudi Medical City – *Saudi Arabia | 2016*
+King Saud Medical City – *Saudi Arabia | Oct 2016*
 
 **Bachelor of Science in Nursing**  
-University of Northern Philippines – *Philippines | 2010*
+University of Northern Philippines – *Philippines | Mar 2010*
 
 ---
 
 ## 📌 Additional Information
 
 - **Registered Nurse:** Philippines and Saudi Arabia *(not licensed in Canada)*  
-- **PSW/HSW Experience:** 2 years in Ontario  
+- **PSW/HSW Experience:** 2 years & 8 months in Ontario  
 - **Status:** Permanent Resident of Canada  
-- **Languages:** English, Filipino (Tagalog, Ilocano)
+- **Languages:** English, Filipino (Tagalog)
