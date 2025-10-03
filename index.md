@@ -17,7 +17,7 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ## 🌟 Highlights
 
-- **Nursing:** 9Years experience (Philippines and Saudi Arabia)
+- **Nursing:** 9 Years experience (Philippines and Saudi Arabia)
 - **PWS/HSW:** 2 Years & 8 months experience (Canada)
 - **First Aid:** Certified in Standard First Aid, CPR Level C with BLS
 - **Infection Control:** Trained and certified
