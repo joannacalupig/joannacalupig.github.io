@@ -74,7 +74,7 @@ King Saud Medical City – *Riyadh, Saudi Arabia | Aug 2016 – Jul 2018*
 - Monitored vital signs, growth, and response to treatments; promptly reported changes to physicians
 - Administered oral, intramascular, and intravenous medications, fluids, and vaccinations in accordance with pediatric protocols
 - Assisted with diagnostic and therapeutic procedures such as IV insertion, oxygen therapy, and wound care
-- Collaborated with pediatricians and interdisciplinary teams in developing andimplementing care plans
+- Collaborated with pediatricians and interdisciplinary teams in developing and implementing care plans
 - Provide health teaching to parents and caregivers on medication adherence, nutrition, infection prevention, and home care
 - Maintained infection control and patient safety standards to protect immunocompromised andvulnerable children
 
