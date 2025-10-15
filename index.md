@@ -61,7 +61,7 @@ Eldercare Home Health – *Toronto, Ontario | Nov 2021 – Dec 2021*
 
 **Dialysis Nurse**  
 St. Theresa Dialysis Center, Inc. – *Pampanga, Philippines | May 2020 – Jul 2021*  
-- Provided specialized care to patients with chronic kdney disease undergoing hemodialysis
+- Provided specialized care to patients with chronic kidney disease undergoing hemodialysis
 - Prepared, operated, and monitored dialysis machines to ensure accurate treatment delivery
 - Assessed patients before, during, and after dialysis; responded promptly to complications
 - Administered IV medications, blood transfusions, and anticoagulants as ordered
