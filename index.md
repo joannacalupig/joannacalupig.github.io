@@ -97,6 +97,18 @@ Various Government Hospitals – *La Union, Philippines | Nov 2010 – Aug 2016*
 
 ## 🎓 Education and Certifications
 
+**Dementia Care Workshop**
+VHA Home Healthcare / April 2026
+
+**Mechanical Lift Training**
+VHA Home Healthcare / March 2026
+
+**Caring For Children With Behavioural Differences**
+Sickkids Hospital (Webinar) / March 2026
+
+**How To Care For A Child With A Feeding Tube**
+Sickkids Hospital (Webinar) / Jan 2026
+
 **HACCP Food Safety System for Restaurants and other Catering Services**
 Alison (E Learning) / Sep 2025*
 
@@ -126,6 +138,6 @@ University of Northern Philippines – *Philippines | Mar 2010*
 ## 📌 Additional Information
 
 - **Registered Nurse:** Philippines and Saudi Arabia *(not licensed in Canada)*  
-- **PSW/HSW Experience:** 2 years & 8 months in Ontario  
+- **PSW/HSW Experience:** 3 years & in Ontario  
 - **Status:** Permanent Resident of Canada  
 - **Languages:** English, Filipino (Tagalog)
