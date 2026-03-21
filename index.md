@@ -41,6 +41,14 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ## 💼 Work Experience
 
+**Personal Support Worker**
+Sickkids Hospital - *Toronto, Ontario / Nov 2025 - up to present
+- Assisting with daily living activities, including personal hygiene,grooming,feeding,and mobility support.
+- Positioning patients, assisting with transfers
+- Ensuring safe and clean environment
+- Restocking supplies of the patients
+- Communicating to health team members to ensure efficient care
+  
 **Home Support Worker**  
 Private Residence – *Markham, Ontario | Feb 2023 – Apr 2025*  
 - Assisted with bathing, dressing, ambulation, and hygiene  
