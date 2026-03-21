@@ -98,7 +98,7 @@ Various Government Hospitals – *La Union, Philippines | Nov 2010 – Aug 2016*
 ## 🎓 Education and Certifications
 
 **Dementia Care Workshop**
-VHA Home Healthcare / April 2026
+VHA Home Healthcare (Webinar) / April 2026
 
 **Mechanical Lift Training**
 VHA Home Healthcare / March 2026
