@@ -42,7 +42,7 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 ## 💼 Work Experience
 
 **Personal Support Worker**
-Sickkids Hospital - *Toronto, Ontario / Nov 2025 - up to present
+Sickkids Hospital - Toronto, Ontario / Nov 2025 - up to present
 - Assisting with daily living activities, including personal hygiene,grooming,feeding,and mobility support.
 - Positioning patients, assisting with transfers
 - Ensuring safe and clean environment
