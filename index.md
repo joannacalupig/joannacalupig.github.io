@@ -41,12 +41,12 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ## 💼 Work Experience
 
-**Personal Support Worker**
-Sick Kids Hospital – *Toronto, Ontario / Nov 2025 - Present
-- Assisting with daily living activities, including personal hygiene,grooming,feeding,and mobility support.
-- Positioning patients, assisting with transfers
+**Personal Support Worker**  
+Sick Kids Hospital – *Toronto, Ontario / Nov 2025 -  
+- Assisting with daily living activities, including personal hygiene,grooming,feeding,and mobility  
+- Positioning patients, assisting with transfers 
 - Ensuring safe and clean environment
-- Restocking supplies of the patients
+-  Restocking supplies of the patients 
 - Communicating to health team members to ensure efficient care
   
 **Home Support Worker**  
