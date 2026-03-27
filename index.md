@@ -104,10 +104,10 @@ VHA Home Healthcare (Webinar) / April 2026
 VHA Home Healthcare / March 2026
 
 **Caring For Children With Behavioural Differences**
-Sickkids Hospital (Webinar) / March 2026
+Sick Kids Hospital (Webinar) / March 2026
 
 **How To Care For A Child With A Feeding Tube**
-Sickkids Hospital (Webinar) / Jan 2026
+Sick Kids Hospital (Webinar) / Jan 2026
 
 **HACCP Food Safety System for Restaurants and other Catering Services**
 Alison (E Learning) / Sep 2025*
