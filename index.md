@@ -3,7 +3,7 @@
 📍 Markham, Ontario  
 📞 [(647) 864‑3970](tel:+16478643970)  
 📧 [joanlevs@yahoo.com](mailto:joanlevs@yahoo.com)  
-🔗 [linkedin.com/in/JLC0804](https://www.linkedin.com/in/JLC0804/)  
+🔗 [linkedin.com/in/joannacalupig](https://www.linkedin.com/in/joannacalupig/)  
 🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)  
 📄 [Download Resume (PDF)](JoannaLeviCalupig-Resume.pdf)
 
@@ -42,14 +42,14 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 ## 💼 Work Experience
 
 **Personal Support Worker**  
-Sick Kids Hospital – *Toronto, Ontario / Nov 2025 -  Present
+Sick Kids Hospital – *Toronto, Ontario / Nov 2025 – Present*
 - Assisting with daily living activities, including personal hygiene, grooming, feeding, and mobility  
 - Positioning patients, assisting with transfers 
 - Ensuring safe and clean environment
 -  Restocking supplies of the patients 
 - Communicating to health team members to ensure efficient care
   
-**Home Support Worker**  
+**Private Home Support Worker**  
 Private Residence – *Markham, Ontario | Feb 2023 – Apr 2025*  
 - Assisted with bathing, dressing, ambulation, and hygiene  
 - Provided companionship and emotional support  
@@ -97,8 +97,8 @@ Various Government Hospitals – *La Union, Philippines | Nov 2010 – Aug 2016*
 
 ## 🎓 Education and Certifications
 
-**Dementia Care Workshop**
-VHA Home Healthcare (Webinar) / April 2026
+**Dementia Care Workshop**  
+VHA Home Healthcare – *Webinar | Apr 2026*
 
 **Mechanical Lift Training**
 VHA Home Healthcare / March 2026
