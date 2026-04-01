@@ -1,21 +1,21 @@
 # JOANNA LEVI CALUPIG
 
-📍 Markham, Ontario  
-📞 [(647) 864‑3970](tel:+16478643970)  
-📧 [joanlevs@yahoo.com](mailto:joanlevs@yahoo.com)  
-🔗 [linkedin.com/in/joannacalupig](https://www.linkedin.com/in/joannacalupig/)  
-🌐 [joannacalupig.github.io](https://joannacalupig.github.io/)  
-📄 [Download Resume (PDF)](JoannaLeviCalupig-Resume.pdf)
+Markham, Ontario  
+[(647) 864‑3970](tel:+16478643970)  
+[joanlevs@yahoo.com](mailto:joanlevs@yahoo.com)  
+[linkedin.com/in/joannacalupig](https://www.linkedin.com/in/joannacalupig/)  
+[joannacalupig.github.io](https://joannacalupig.github.io/)  
+[Download Resume (PDF)](JoannaLeviCalupig-Resume.pdf)
 
 ---
 
-## 👩‍⚕️ Professional Summary
+## Professional Summary
 
 Compassionate healthcare professional and Registered Nurse (Philippines & Saudi Arabia) with hands-on PSW experience in Ontario. Skilled in personal care, safe client handling, companionship, and palliative support. Certified in First Aid & CPR with a strong foundation in infection control and patient safety. Dedicated to enhancing quality of life and dignity for clients.
 
 ---
 
-## 🌟 Highlights
+## Highlights
 
 - **Nursing:** 9 Years experience (Philippines and Saudi Arabia)
 - **PSW/HSW:** 3 Years experience (Canada)
@@ -27,7 +27,7 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ---
 
-## 🧰 Key Skills
+## Key Skills
 
 - Personal care and hygiene assistance  
 - Safe transfers (including Hoyer lift use)  
@@ -39,10 +39,10 @@ Compassionate healthcare professional and Registered Nurse (Philippines & Saudi 
 
 ---
 
-## 💼 Work Experience
+## Work Experience
 
 **Personal Support Worker**  
-Sick Kids Hospital – *Toronto, Ontario / Nov 2025 – Present*
+Sick Kids Hospital – *Toronto, Ontario | Nov 2025 – Present*
 - Assisting with daily living activities, including personal hygiene, grooming, feeding, and mobility  
 - Positioning patients, assisting with transfers 
 - Ensuring safe and clean environment
