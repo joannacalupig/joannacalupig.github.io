@@ -95,33 +95,33 @@ Various Government Hospitals – *La Union, Philippines | Nov 2010 – Aug 2016*
 
 ---
 
-## 🎓 Education and Certifications
+## Education and Certifications
 
 **Dementia Care Workshop**  
 VHA Home Healthcare – *Webinar | Apr 2026*
 
-**Mechanical Lift Training**
-VHA Home Healthcare / March 2026
+**Mechanical Lift Training**  
+VHA Home Healthcare – *Ontario | Mar 2026*
 
-**Caring For Children With Behavioural Differences**
-Sick Kids Hospital (Webinar) / March 2026
+**Caring For Children With Behavioural Differences**  
+Sick Kids Hospital – *Webinar | Mar 2026*
 
-**How To Care For A Child With A Feeding Tube**
-Sick Kids Hospital (Webinar) / Jan 2026
+**How To Care For A Child With A Feeding Tube**  
+Sick Kids Hospital – *Webinar | Jan 2026*
 
-**HACCP Food Safety System for Restaurants and other Catering Services**
-Alison (E Learning) / Sep 2025*
+**HACCP Food Safety System for Restaurants and other Catering Services**   
+Alison – *E-Learning | Sep 2025*
 
-**Caregiving Skills: Dementia Care**
-Alison ( E Learning) / Sep 2025
+**Caregiving Skills: Dementia Care**  
+Alison – *E-Learning | Sep 2025*
 
 **Standard First Aid & CPR Level C with BLS**  
 Toronto CPR – *Ontario | Sep 2025*
 
-**Coursework/Training in Identification and Reporting of Child Abuse and Maltreatment**
+**Coursework/Training in Identification and Reporting of Child Abuse and Maltreatment**  
 #1 Accelerated CE – NYS Education Department – *New York | Aug 2023*
 
-**Infection Control and Barrier Precautions**
+**Infection Control and Barrier Precautions**  
 #1 Accelerated CE – NYS Education Department – *New York | Aug 2023*
 
 **Palliative Care Multidiscipline Program**  
@@ -135,7 +135,7 @@ University of Northern Philippines – *Philippines | Mar 2010*
 
 ---
 
-## 📌 Additional Information
+## Additional Information
 
 - **Registered Nurse:** Philippines and Saudi Arabia *(not licensed in Canada)*  
 - **PSW/HSW Experience:** 3 years & in Ontario  
